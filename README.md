@@ -10,9 +10,13 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
 README setup by @PrismProphet
-
-
-
+<details>
+<summary>See say images</summary>
 
 
 ![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
+
+
+
+
+</details>
