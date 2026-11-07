@@ -31,6 +31,16 @@ README setup by @PrismProphet
 
 </details>
 
+<details>
+<summary>$\color{#800517}{\text{Blinkies}}$</summary>
+
+![image alt](blinkiesCafe-Y4.gif)
+![image alt](blinkiesCafe-fV.gif)
+![image alt](blinkiesCafe-4S.gif)
+![image alt](blinkiesCafe-Xn.gif)
+
+</details>
+
 　˙　　˳　　⁺　˙　　˳　　⁺　˙　　˳　　⁺
 
  [![Alt Text](Untitled70_20261107124014.png)](
