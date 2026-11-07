@@ -10,7 +10,7 @@
 ⠀　⠀  　⠀ Zii   ⋮  he/any　　 　  
 
 $\color{#c30010}{\text{autistic, adhd, teen}}$ 𐙚　 +　 ₊  ◞　
-$\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace fan}}$　　  ![image alt](88488dee.gif) 
+$\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![image alt](88488dee.gif) 
  
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
