@@ -5,7 +5,7 @@
 ⠀　⠀  　⠀ Zii   ⋮  he/any　　 　  
 
 ⠀　　𐙚　 autistic, adhd, teen+　 ₊  ◞　
-　˙　　˳　　⁺　　Roblox Grace fan
+　˙　　˳　　⁺　　Roblox Grace fan![image alt](88488dee.gif) 
  
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
