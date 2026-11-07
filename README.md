@@ -4,7 +4,7 @@
 ⠀_ _
 ⠀　⠀  　⠀ Zii   ⋮  he/any　　 　  
 
-⠀　　𐙚　 autistic, adhd, teen+　 ₊  ◞　
+$\color{#c30010}{\text{autistic, adhd, teen}}$ 𐙚　 +　 ₊  ◞　
 　˙　　˳　　⁺　　Roblox Grace fan![image alt](88488dee.gif) 
  
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
