@@ -31,3 +31,9 @@ README setup by @PrismProphet
 
 </details>
 
+　˙　　˳　　⁺　˙　　˳　　⁺　˙　　˳　　⁺
+
+ [![Alt Text](Untitled70_20261107124014.png)](
+ https://ziic0rr.atabook.org/)
+ 
+
