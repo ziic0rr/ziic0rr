@@ -38,7 +38,7 @@ README setup by @PrismProphet
 ![image alt](blinkiesCafe-fV.gif)
 ![image alt](blinkiesCafe-4S.gif)
 ![image alt](blinkiesCafe-Xn.gif)
-
+![image alt](blinkiesCafe-C7.gif)
 </details>
 
 　˙　　˳　　⁺　˙　　˳　　⁺　˙　　˳　　⁺
