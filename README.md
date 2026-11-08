@@ -17,7 +17,7 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
 <details>
-<summary>Grace comms gallery! :3</summary>
+<summary>Reprieve gallery! :3</summary>
 
 
 ![image alt](https://github.com/ziic0rr/ziic0rr/blob/main/Reprieve_EF0F32C.gif)  
@@ -46,4 +46,4 @@ commissioned from @sokeswan
  
 
 
-README setup by @PrismProphet
+README contributed by @PrismProphet
