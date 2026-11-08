@@ -15,14 +15,11 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
 <details>
-<summary>Shoesay</summary>
+<summary>Grace comms gallery! :3</summary>
 
 
-![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
-![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
-![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
-![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
-![image alt](e4b4aa5933a17394e0f74f87dde982c7.jpg) 
+![image alt](https://github.com/ziic0rr/ziic0rr/blob/main/Reprieve_EF0F32C.gif)  
+commissioned from @sokeswan
 
 
 
