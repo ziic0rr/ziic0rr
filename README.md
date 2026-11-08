@@ -12,6 +12,8 @@
 $\color{#c30010}{\text{autistic, adhd, teen}}$ 𐙚　 +　 ₊  ◞　
 $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![image alt](88488dee.gif) 
  
+![image alt](https://github.com/ziic0rr/ziic0rr/blob/main/tumblr_36e1b14d7be97fe4a4d99b6299e131b5_73981755_400.gif) 
+
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ![image alt](tumblr_42f4dbb5dd83f499e2fbcae16e60a4a8_e2f14c94_75.gif) 
 <details>
