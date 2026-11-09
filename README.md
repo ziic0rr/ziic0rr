@@ -19,8 +19,7 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 <summary>Reprieve gallery! :3</summary>
 
 
-![image alt](https://github.com/ziic0rr/ziic0rr/blob/main/Reprieve_EF0F32C.gif)  
-@sokeswan
+uhm...later... 
 
 
 
