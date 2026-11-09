@@ -19,7 +19,7 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 <summary>Reprieve gallery! :3</summary>
 
 
-uhm...later... 
+all images are found on Pinterest, DeviantArt, etc.! credits to the artists ... theres too many!
 
 
 
