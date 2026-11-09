@@ -21,7 +21,7 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 
 ---
 
-all images are found on Pinterest, DeviantArt, etc.! credits to the artists ... theres too many! COUNTER: 140
+all images are found on Pinterest, DeviantArt, etc.! credits to the artists ... theres too many! TOTAL: 140
 ![image alt](f5e152798f1c4594ae3b99caad22a1dc.jpg) 
 ![image alt](5ddcf21036d3793bbe7182c8a6f210e0.jpg) 
 ![image alt](dedcf67ed7093c6a7f24c25abbf09e05.jpg) 
