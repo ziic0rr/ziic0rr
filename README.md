@@ -45,7 +45,5 @@ commissioned from @sokeswan
  https://ziic0rr.atabook.org/)
  
 
-
-[![Alt Text](unfinished strawpage)](https://ziic0rr.straw.page)
-
+ 
 README contributed by @PrismProphet
