@@ -39,7 +39,6 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 ![image alt](7f14b71d84d9d2cc9d09f1cab28d3808.jpg) 
 ![image alt](d8fff0cbc6ce2bb3dc151a46ac425934.jpg) 
 ![image alt](6788e1126cccd86b2bb3b666e318ff2a.jpg) 
-![image alt](6788e1126cccd86b2bb3b666e318ff2a.jpg) 
 ![image alt](fe6e6d625cfa08dea702f565fda34c75.jpg) 
 ![image alt](514b2144bde25643c6d729822d1a2c02.jpg) 
 ![image alt](993b0a2b5d7bc0ab863557cfa93bf79a.jpg) 
