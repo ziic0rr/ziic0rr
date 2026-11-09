@@ -20,6 +20,18 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 
 
 all images are found on Pinterest, DeviantArt, etc.! credits to the artists ... theres too many!
+![image alt](f5e152798f1c4594ae3b99caad22a1dc.jpg) 
+![image alt](5ddcf21036d3793bbe7182c8a6f210e0.jpg) 
+![image alt](dedcf67ed7093c6a7f24c25abbf09e05.jpg) 
+![image alt](60dce5d9e00ca00d260aed9d7d45892e.jpg) 
+![image alt](96cb834a0ff0cc8226a04ba6725390a2.jpg) 
+![image alt](2dc7a4c1fc6c7e8e2313aaca92cff464.jpg) 
+![image alt](5a9bfc406f40830fd4b0f56f2fe8eb6a.jpg) 
+![image alt](Untitled8680_20260402225118.png) 
+![image alt](02b46c31f5f420994852c4ccc232b6cf.jpg) 
+![image alt](0391210cbe225604ca05a624760f7331.jpg) 
+![image alt](3eb1ba80acd5c6cc2045e175169895df.jpg) 
+![image alt](4d7a29a06c0b2fa341fc5e6c3d656849.jpg) 
 
 
 
