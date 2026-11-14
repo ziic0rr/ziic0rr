@@ -32,6 +32,8 @@ John Grace, John Reprieve, John Zen + Woed, MAYHEM, rOT
 
 ...
 
+CHAOS, Greed, Psychiatrist
+
 
 
 
