@@ -18,8 +18,19 @@ $\color{#800517}{\text{ 　˙　　˳　　⁺Roblox Grace hyperfix}}$　　  ![
 <details>
 <summary>all Grace characters! :3</summary>
 
+# Entities
+Carnation, Goatman, Slight, Slugfish, Elkman, Heed, Dozer, Sorrow, Litany, Doppel, Doombringer, Kookoo, Tar, Rue, Drain, Mime, Ire, S.N.A.P., Covet, Fool, Craven, Seesay, Stem, Sundial, Innego, Zomber, Duk, PIHSROW, Flowerhead, Guille, Tragedy, sin, SHAME, Lapse, DISGRACE
 
-hi
+# Trinity
+God, Good Light, H. Skel
+
+# Miscellaneous
+You, Shepherd, Goobers, Rig
+
+# You
+John Grace, John Reprieve, John Zen + Woed, MAYHEM, rOT
+
+...
 
 
 
